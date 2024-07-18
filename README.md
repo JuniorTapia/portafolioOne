@@ -12,6 +12,6 @@
 
 ## Hecho por:
 
-###Ana García
+###JTC
 
-### Linkedin: https://www.linkedin.com/school/aluracursos/
+### Linkedin: 
